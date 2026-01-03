@@ -9,7 +9,7 @@ Images are drawn from a mixture of **published local press**, **official ceremon
 ## Education & youth
 
 **Wirral Grammar School Rugby Team (c. 1974–1975)**  
-(images/Wirral Grammar Rugby Team c1975.jpg)
+![Wirral Grammar School Rugby Team, c. 1974–1975](images/Wirral Grammar Rugby Team c1975.pdf)
 Published local newspaper photograph showing the school rugby squad. Nick Holmes is named in the original caption.  
 *Source: published contemporaneous*
 
@@ -25,8 +25,8 @@ Private photograph taken at the time of leaving Wellington School, Bebington.
 Local newspaper clipping featuring the band *Swag*, finalists in a Wirral youth talent competition organised by Bebington Youth Council.  
 *Source: published contemporaneous*
 
-**Local DJ work — Wirral (c. 1977–1980)**
-(images/Token Disco c1977)
+**Local DJ work – Wirral (c. 1977–1980)**
+![Token Disco mobile DJ setup, c. 1977](images/Token Disco c1977.pdf)
 Private photograph showing mobile disco equipment and collaborators during DJ work across the Wirral.  
 *Source: private contemporaneous*
 
