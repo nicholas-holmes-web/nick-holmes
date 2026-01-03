@@ -10,6 +10,7 @@ Images are drawn from a mixture of **published local press**, **official ceremon
 
 **Wirral Grammar School Rugby Team (c. 1974–1975)**  
 [view images (PDF)](images/Wirral Grammar Rugby Team c1975.pdf)
+
 Published local newspaper photograph showing the school rugby squad. Nick Holmes is named in the original caption.  
 *Source: published contemporaneous*
 
@@ -27,6 +28,7 @@ Local newspaper clipping featuring the band *Swag*, finalists in a Wirral youth 
 
 **Local DJ work – Wirral (c. 1977–1980)**
 [view images pdf](images/Token Disco c1977.pdf)
+
 Private photograph showing mobile disco equipment and collaborators during DJ work across the Wirral.  
 *Source: private contemporaneous*
 
