@@ -14,15 +14,29 @@ Images are drawn from a mixture of **published local press**, **official ceremon
 Published local newspaper photograph showing the school rugby squad. Nick Holmes is named in the original caption.  
 *Source: published contemporaneous*
 
-**Leaving Wellington School (1973)**  
+**France Rugby Tour (c. 1975)**
+
+![France rugby tour photograph, c. 1975](France-rugbytour-c1975.JPG)
+
+Photograph taken during an overseas rugby tour while at Wirral Grammar School.  
+*Source: private contemporaneous*
+
+**Leaving Wellington School (1973)**
+
+![Leaving Wellington School, Bebington, 1973](IMG_3623.jpg)
+
 Private photograph taken at the time of leaving Wellington School, Bebington.  
 *Source: private contemporaneous*
+
 
 ---
 
 ## Music (1970s)
 
-**Rock group “Swag” — Wirral youth talent competition (mid-1970s)**  
+**Rock group “Swag” – Wirral youth talent competition (mid-1970s)**
+
+![Rock group Swag, c. 1974](Swag%20c1974.jpg)
+
 Local newspaper clipping featuring the band *Swag*, finalists in a Wirral youth talent competition organised by Bebington Youth Council.  
 *Source: published contemporaneous*
 
@@ -46,7 +60,7 @@ Completed in a sub-four-hour time.
 
 ![Glasgow Marathon finish, 1986](Glasgow-marathon.JPG)
 
-Finish photograph showing completion time.  
+Finish photograph showing completion of the Glasgow Marathon.  
 *Source: private contemporaneous*
 
 ---
@@ -57,6 +71,12 @@ Finish photograph showing completion time.
 Private photographs document Nick Holmes with colleagues during his time at Gleneagles. One photograph from 1982 shows him with his therapist team; another from the same year shows Elizabeth (later his wife) on an exercise bike.  
 *Source: private contemporaneous; contextualised by official Gleneagles history*
 
+**Gleneagles Hotel – early 1980s**
+
+![Gleneagles Hotel staff photograph, early 1980s](Gleneagles-little-liverpool.JPG)
+
+Photograph from Nick Holmes’ early career period at Gleneagles Hotel.  
+*Source: private contemporaneous*
 ---
 
 ## Honours
@@ -65,8 +85,9 @@ Private photographs document Nick Holmes with colleagues during his time at Glen
 
 ![Freeman of the City of London ceremony](Freedom-of-city.JPG)
 
-Photograph taken at the formal admission ceremony.  
+Photograph taken at the formal admission ceremony as a Freeman of the City of London.  
 *Source: private contemporaneous*
+
 
 ---
 
