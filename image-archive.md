@@ -26,8 +26,10 @@ Private photograph taken at the time of leaving Wellington School, Bebington.
 Local newspaper clipping featuring the band *Swag*, finalists in a Wirral youth talent competition organised by Bebington Youth Council.  
 *Source: published contemporaneous*
 
+
 **Local DJ work – Wirral (c. 1977–1980)**
-[view images pdf](images/Token Disco c1977.pdf)
+
+![Token Disco mobile DJ setup, c. 1977](Token-disco-c1977.JPG)
 
 Private photograph showing mobile disco equipment and collaborators during DJ work across the Wirral.  
 *Source: private contemporaneous*
@@ -40,8 +42,11 @@ Private photograph showing mobile disco equipment and collaborators during DJ wo
 Completed in a sub-four-hour time.  
 *Source: first-person record*
 
-**Glasgow Marathon finish (1986)**  
-Finish photograph showing completion time of approximately 3:55.  
+**Glasgow Marathon (1986)**
+
+![Glasgow Marathon finish, 1986](Glasgow-marathon.JPG)
+
+Finish photograph showing completion time.  
 *Source: private contemporaneous*
 
 ---
@@ -56,8 +61,11 @@ Private photographs document Nick Holmes with colleagues during his time at Glen
 
 ## Honours
 
-**Freeman of the City of London**  
-Photograph taken at the formal admission ceremony, showing official regalia and oath text.  
+**Freeman of the City of London**
+
+![Freeman of the City of London ceremony](Freedom-of-city.JPG)
+
+Photograph taken at the formal admission ceremony.  
 *Source: private contemporaneous*
 
 ---
