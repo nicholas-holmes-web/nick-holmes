@@ -21,12 +21,7 @@ Published local newspaper photograph showing the school rugby squad. Nick Holmes
 Photograph taken during an overseas rugby tour while at Wirral Grammar School.  
 *Source: private contemporaneous*
 
-**Leaving Wellington School (1973)**
 
-![Leaving Wellington School, Bebington, 1973](IMG_3623.jpg)
-
-Private photograph taken at the time of leaving Wellington School, Bebington.  
-*Source: private contemporaneous*
 
 
 ---
@@ -97,6 +92,11 @@ Photograph taken at the formal admission ceremony as a Freeman of the City of Lo
 Student Academic Summary confirms award and classification.  
 *Source: official documentary evidence*
 
+
+![BA Music certificate](IMG_3623.jpg)
+
+Private photograph
+*Source: private contemporaneous*
 ---
 
 ## Notes on use
