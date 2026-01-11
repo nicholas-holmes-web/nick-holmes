@@ -4,6 +4,8 @@ This page accompanies the biographical record of **Nick Holmes (born 1957)** and
 
 Images are drawn from a mixture of **published local press**, **official ceremonies**, and **private contemporaneous photographs**, and are presented here for historical and family reference.
 
+*This image archive will continue to grow as additional photographs are identified and digitised.*
+
 ---
 
 ## Education & youth
