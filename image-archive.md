@@ -9,7 +9,7 @@ Images are drawn from a mixture of **published local press**, **official ceremon
 ## Education & youth
 
 **Wirral Grammar School Rugby Team (c. 1974–1975)**  
-[view images (PDF)](images/Wirral Grammar Rugby Team c1975.pdf)
+![Wirral Grammar School Rugby Team, c. 1974–1975](Wirral-grammar-rugby-c1975.JPG)
 
 Published local newspaper photograph showing the school rugby squad. Nick Holmes is named in the original caption.  
 *Source: published contemporaneous*
