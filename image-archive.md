@@ -66,6 +66,8 @@ Finish photograph showing completion of the Glasgow Marathon.
 Private photographs document Nick Holmes with colleagues during his time at Gleneagles. One photograph from 1982 shows him with his therapist team; another from the same year shows Elizabeth (later his wife) on an exercise bike.  
 *Source: private contemporaneous; contextualised by official Gleneagles history*
 
+![From Gleneagles website history section](Gleneagles-1982.png)
+
 **Gleneagles Hotel – early 1980s**
 
 ![Gleneagles Hotel staff photograph, early 1980s](Gleneagles-little-liverpool.JPG)
